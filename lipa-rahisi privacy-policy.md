@@ -176,7 +176,7 @@ If there are any questions regarding this privacy policy, you may contact us usi
 
 Mobile: (+254) 722 599 939
 
-Or visit our main offices located at The Trip Complex, 2nd Floor Suite 4, next to Garden City Mall
+Or visit our main offices located at The Trio Complex, 2nd Floor Suite 4, next to Garden City Mall
 
 **Versioning**
 
